@@ -1,1 +1,0 @@
-# Discove-Your-Future-Major.github.io
